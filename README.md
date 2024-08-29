@@ -2,4 +2,4 @@
 This is my first project
 <br>
 Author ARSALAN 
-I am nigga
+I am racist
